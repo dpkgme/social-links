@@ -1,0 +1,4 @@
+- [spotify](https://open.spotify.com/user/akmz)
+- [vsco](https://vsco.co/dpkgme/gallery)
+- [pinterest](https://www.pinterest.com/dpkgme/)
+- [twitter](https://twitter.com/kokoborb)
